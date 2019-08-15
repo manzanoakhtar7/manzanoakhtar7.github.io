@@ -1,1 +1,1 @@
-# manzanoakhtar7.guthub.io
+# manzanoakhtar7.github.io
